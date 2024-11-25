@@ -1,1 +1,0 @@
-# Lernzettel GGK
